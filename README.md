@@ -1,0 +1,2 @@
+# sci-fi-movies
+Sci-fi movies are often described, and even defined, as a method of extrapolating and predicting the future. SGV, What is a Science Fiction Movie?  Fiction works will often take contemporary trends or phenomena and exaggerate it in an imaginary setting.  Also, predicting the future is not the real purpose of science fiction. This genre is closer to the concept of a thought experiment than a prophecy. If you like this genre of movies then here are suggestions for you. https://quangcaotructuyen24h.vn/top-20-sci-fi-movies/
